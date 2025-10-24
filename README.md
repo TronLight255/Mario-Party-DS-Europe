@@ -1,3 +1,2 @@
-# KRNL
-Its a roblox cheat 
-if you use it you make hacks on any game go to rbxscript.com
+# Mario Party DS 
+A game on based Hudson Soft by Nintendo on 2006 a colab by Nintendo 
