@@ -1,2 +1,2 @@
-# Mario Party DS 
-A game on based Hudson Soft by Nintendo on 2006 a colab by Nintendo 
+# Random PD 
+a roleplay based on pixel dungeon by watabou this is a backup by Amazon appstore android discontinued on 20/8/25
